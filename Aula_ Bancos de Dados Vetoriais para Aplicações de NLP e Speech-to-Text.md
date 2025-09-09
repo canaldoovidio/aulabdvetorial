@@ -4,7 +4,7 @@
 
 **Instituição:** Inteli
 
-**Professor:** Manus AI
+**Professor:** Ovidio
 
 ---
 
